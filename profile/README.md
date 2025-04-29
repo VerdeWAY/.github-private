@@ -1,4 +1,4 @@
-## Welcome to the team 🙌
+## Welcome to VERDEWAY 🙌
 
 <!--
 
