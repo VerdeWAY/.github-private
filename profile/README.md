@@ -1,5 +1,6 @@
 ## Welcome to VERDEWAY 🙌
 
+👀 There is nothing to stalk right now, get out
 <!--
 
 **Here are some ideas to get you started:**
